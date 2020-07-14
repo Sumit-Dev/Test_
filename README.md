@@ -11,9 +11,6 @@ Test project
   
   
   
-  
-  Maybe demo project do not fulfill all your requirements because I don't remember the question clearly when I do it.<br /><br /><br />
-
 In case of any confusion you can contact me directly:<br />
 Sumit Sharma<br />
 Mod: +917240006862<br />
